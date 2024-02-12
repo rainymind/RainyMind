@@ -1,4 +1,4 @@
-- 👋 Hi, I’m RainyMind 
+- 👋 Hi, I’m Rainy Mind 
 - 👀 I’m interested in 📚🎮🎞🎼🏎
 - 🌱 I’m currently learning 👨‍💻📝🎻
 - 💞️ I’m looking to collaborate on ...
